@@ -16,4 +16,4 @@ Check out some of the books I have read or am currently reading this year:
 
 Shoot me an email if you need help with any of my projects, want to share a book recommendation, or have an opportunity you think might be interesting to me.
 
-[**Website**](https://luanrt.is-a.dev/) · [**Email**](mailto:luan.lrt4@gmail.com) · [**Goodreads**](https://www.goodreads.com/user/show/153761468-luan-torquato)
+[**Website**](https://thatsciencephile.com/) · [**Email**](mailto:luan.lrt4@gmail.com) · [**Goodreads**](https://www.goodreads.com/user/show/153761468-luan-torquato)
